@@ -1,0 +1,4 @@
+- 👋 Hi, I’m  Niwesh Kumar Suman (@niweshkumarsuman)
+- 👀 I’m interested in the field of Artificial Intelligince
+- 🌱 I’m currently studying in Giet University, Gunupur Odisha
+- Contact : niweshsuman8651@gmail.com
